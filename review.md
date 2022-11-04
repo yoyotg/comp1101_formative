@@ -11,3 +11,6 @@ There are a few issues, none of which I understand. So you're probably okay.
 There is evidence of collaboration, however one party commited a lot more than the other so it seems that it is just acceptable.
 There is evidence that it was completeted at the last minute so not great there either.
 Author information is fine.
+# Total Grade
+68 - 2-I
+
